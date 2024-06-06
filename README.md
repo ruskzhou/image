@@ -1,1 +1,1 @@
-<8hoursfromnow.com>
+8hoursfromnow [8hoursfromnow](https://8hoursfromnow.com)。
